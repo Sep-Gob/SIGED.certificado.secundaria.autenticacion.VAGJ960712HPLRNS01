@@ -1,0 +1,2 @@
+# SIGED.certificado.secundaria.autenticacion.VAGJ960712HPLRNS01
+VAGJ960712HPLRNS01
